@@ -5,3 +5,6 @@
 
 mix In pot and heat Until it forms a ball
 knead For A bit
+
+from
+http://sowsproutplay.com/activities/diy-edible-kool-aid-play-dough-party-favors/
