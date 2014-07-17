@@ -18,8 +18,10 @@ Rhondas cookies
 
 1.5 tsp vanilla
 
-12 oz package chocolate chips
+[] 12 oz package chocolate chips
+
 stir flour soda and salt
+
 in Mixer beat butter and Shortening on medium for 30 seconds.
 add sugars and Beat till fluffy. add eggs and Vanilla beat Well
 add dry ingredients To beaten Mixture till well combined.
