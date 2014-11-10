@@ -13,10 +13,12 @@ Friendsgiving
 Maple Bacon Turkey-- Baileys
 
 **Sides**
+
 Bacon Gouda Mashed Potatoes -- Baileys
 Side 2 -- Someone
 Side 3 -- Someone
 
 **Dessert**
+
 Krumkaka
 Lefsa
