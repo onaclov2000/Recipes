@@ -1,5 +1,13 @@
 serious Eats
 
+Sub 1.5 tbsp flour for
+
+.5 tbsp oregano
+
+.5 tbsp italian seasoning
+
+.5 tbsp parmesan
+
 3 3/4 cup flour
 
 1/4 tsp active dry yeast
