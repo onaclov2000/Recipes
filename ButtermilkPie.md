@@ -1,10 +1,10 @@
 #http://allrecipes.com/recipe/13802/buttermilk-pie/
 
-3 eggs 1/2 cup butter,
+3 eggs 
 
-softened 1 1/2 cups 
+1/2 cup butter softened 
 
-white sugar 
+1 1/2 cups white sugar 
 
 3 tablespoons all-purpose flour 
 
