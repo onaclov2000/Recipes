@@ -8,11 +8,11 @@
 
 3 tablespoons all-purpose flour 
 
-1 cup buttermilk 
+1 cup milk 
 
 1 teaspoon vanilla extract 
 
-1 tablespoon lemon juice 
+2 tablespoon lemon juice 
 
 1/8 tablespoon freshly grated nutmeg 
 
