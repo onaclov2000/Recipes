@@ -2,7 +2,7 @@
 
 3 eggs 
 
-1/2 cup butter softened 
+1/2 cup butter melted (then during the mixing phase slowly add, so you don't scramble eggs)
 
 1 1/2 cups white sugar 
 
