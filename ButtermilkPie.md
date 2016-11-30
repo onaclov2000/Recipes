@@ -15,3 +15,5 @@
 1/8 tablespoon freshly grated nutmeg 
 
 2 (9 inch) unbaked pie crust
+
+(bake 35-45 minutes, or until toothpick comes out clean)
