@@ -1,6 +1,6 @@
 serious Eats
 
-3 3/4 cup flour
+3 3/4 cup flour  _substitute a tsp for tumeric, and a tsp for red chile
 
 1/4 tsp active dry yeast
 
