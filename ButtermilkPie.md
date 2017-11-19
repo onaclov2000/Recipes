@@ -43,7 +43,7 @@ Whip for a bit (I like to make it almost like whipped cream)
 
 Add Vanilla, nutmeg, Whip a bit more (enough to mix is all)
 
-Add lemon milk very slowly letting integrate
+Add lemon milk very slowly letting integrate (I haven't tested this, but should we warm mixture up a bit, so the butter doesn't solidify again?)
 
 Get Pie Plates out. Arrange 2 on a pan.
 
