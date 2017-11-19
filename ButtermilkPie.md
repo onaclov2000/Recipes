@@ -48,3 +48,5 @@ Add lemon milk very slowly letting integrate
 Get Pie Plates out. Arrange 2 on a pan.
 
 Pour about half into one and half into the other pie pan (deep crust from Walmart is what I use).
+
+Put in Oven. Timer to 30 minutes. Start checking after that for "done"
