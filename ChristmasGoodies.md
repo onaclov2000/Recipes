@@ -17,4 +17,5 @@
 8. Chex Mix
 9. Gingerbread Cookies
 10. Turtle Pretzels
+11. [Oreo Cookie Balls](http://www.snackworks.com/recipe/oreo-cookie-balls-126799.aspx)
 
