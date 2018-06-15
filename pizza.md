@@ -1,6 +1,6 @@
 serious Eats
 
-3 3/4 cup flour
+3 3/4 cup bread flour (I use King Arthur Flour, Unbleached Bread Flower)
 
 1/4 tsp active dry yeast
 
