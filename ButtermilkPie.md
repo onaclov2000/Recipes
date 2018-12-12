@@ -50,3 +50,12 @@ Get Pie Plates out. Arrange 2 on a pan.
 Pour about half into one and half into the other pie pan (deep crust from Walmart is what I use).
 
 Put in Oven. Timer to 30 minutes. Start checking after that for "done"
+
+
+
+
+# Buttermilk Pie Filling
+3 eggs, butter, white sugar, all-purpose flour, milk, lemon juice, vanilla extract, nutmeg
+
+# Pie Crust Ingredients (From Walmart.com):
+Ingredients: Wheat Flour, Palm Oil, Water, Sugar, Soybean Oil, Dextrose, Salt, Mono- and Diglycerides
