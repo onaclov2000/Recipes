@@ -1,6 +1,4 @@
-2.5 cups flour
-
-1.5 cups grahm flour
+1 cups coconut flour
 
 3/4 cup shortening (crisco)
 
