@@ -5,14 +5,19 @@ import pandas as pd
 import numpy as np
 from sklearn.cluster import KMeans
 import matplotlib.pyplot as plt
-df = pd.read_csv('cookies.csv')
+#df = pd.read_csv('cookies.csv')
 
 #df.to_json("cookies.json", orient='index')
-df_json_pretty = json.dumps(json.loads(df.to_json(orient='records')), indent=2, sort_keys=True)
-f = open('cookies.json', 'w')
-f.write(df_json_pretty)
-f.close()
+#df_json_pretty = json.dumps(json.loads(df.to_json(orient='records')), indent=2, sort_keys=True)
+#f = open('cookies.json', 'w')
+#f.write(df_json_pretty)
+#f.close()
+
+df = pd.read_json('cookies.json', orient='records')
+df.to_csv('cookies.csv')
+print (df)
 exit()
+
 ingredients_columns = set(df.columns) - set(['Consistency (Soft, Chewy, Etc)', 'Note', 'From', 'Have I made', 
                                              'Dough Temp/Consistency', 'Shortening Flavor',"Water (Hot,Cold)", 
                                              'Butter Prep', 'Butter Type', "salt (table, fine, coarse)", "Altitude"])
