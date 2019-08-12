@@ -13,7 +13,11 @@ https://www.pillsbury.com/recipes/chocolate-chip-cheesecake-bars/581b1fb5-ac65-4
 
 https://www.allrecipes.com/recipe/267143/make-ahead-sweet-potato-and-chorizo-breakfast-burritos/?internalSource=streams&referringId=23081&referringContentType=Recipe%20Hub&clickId=st_trending_s
 
+https://www.allrecipes.com/recipe/266622/instant-pot-taco-bowls/?internalSource=recipe%20hub&referringId=23081&referringContentType=Recipe%20Hub&clickId=cardslot%2046
+
 https://thefoodcharlatan.com/easy-breakfast-casserole-with-potatoes-and-ham-2/
+
+https://www.allrecipes.com/recipe/234515/hatch-chile-enchilada-pie/
 
 # Amazing French Toast
 https://sortedfood.com/playlist/42414
