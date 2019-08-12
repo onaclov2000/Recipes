@@ -11,6 +11,8 @@ https://www.pillsbury.com/recipes/crescent-cheesecake-roll-ups/5ac68e21-baf0-4ee
 
 https://www.pillsbury.com/recipes/chocolate-chip-cheesecake-bars/581b1fb5-ac65-427e-91a8-5f09c50a9350
 
+https://www.allrecipes.com/recipe/267143/make-ahead-sweet-potato-and-chorizo-breakfast-burritos/?internalSource=streams&referringId=23081&referringContentType=Recipe%20Hub&clickId=st_trending_s
+
 
 # Amazing French Toast
 https://sortedfood.com/playlist/42414
