@@ -41,3 +41,7 @@ https://www.momontimeout.com/giant-chewy-chocolate-chip-cookies_28/
 https://www.acouplecooks.com/chocolate-cookies/
 
 https://cooking.nytimes.com/recipes/1890-roasted-brussels-sprouts-with-garlic
+
+https://web.archive.org/web/20200509004957/https://sweettomatoes.com/category/recipes/page/9/
+
+http://bricksofwine.com/2009/03/thin-crust-pizza-recipe/
