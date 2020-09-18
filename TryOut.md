@@ -28,3 +28,16 @@ https://www.allrecipes.com/recipe/82347/best-ever-crab-cakes/?internalSource=pre
 
 # Amazing French Toast
 https://sortedfood.com/playlist/42414
+
+
+https://amp.reddit.com/r/AskCulinary/comments/4s7bla/how_do_i_make_actual_teriyaki_sauce_from/
+
+https://amp.reddit.com/r/food/comments/5vhmub/is_there_any_store_bought_ranch_dressing_that/
+
+https://www-sheknows-com.cdn.ampproject.org/v/s/www.sheknows.com/food-and-recipes/articles/2347913/giada-delaurentiis-chocolate-chip-cookies/amp/?amp_js_v=a2&amp_gsa=1&usqp=mq331AQFKAGwASA%3D#referrer=https%3A%2F%2Fwww.google.com&amp_tf=From%20%251%24s&ampshare=https%3A%2F%2Fwww.sheknows.com%2Ffood-and-recipes%2Farticles%2F2347913%2Fgiada-delaurentiis-chocolate-chip-cookies%2F
+
+https://www.momontimeout.com/giant-chewy-chocolate-chip-cookies_28/
+
+https://www.acouplecooks.com/chocolate-cookies/
+
+https://cooking.nytimes.com/recipes/1890-roasted-brussels-sprouts-with-garlic
