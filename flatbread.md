@@ -9,3 +9,6 @@
 1/4 tsp salt
 
 mix well. roll like lefsa. fry on lefsa grill. bake in oven to brown
+
+300 degrees maybe oven
+450 lefse griddle
