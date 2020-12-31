@@ -1,10 +1,10 @@
 ## Krumkaka ##
 #### By Marilyn Bailey ####
-3 Eggs  
-1/2 Cup Sugar  
-1/2 cup melted butter  
-1/2 cup flour  
-1 tsp vanilla or almond extract
+* 3 Eggs  
+* 1/2 Cup Sugar  
+* 1/2 cup melted butter  
+* 1/2 cup flour  
+* 1 tsp vanilla or almond extract
 
 ### Directions ###
 1. Beat eggs
@@ -17,3 +17,9 @@
 8. 1 tsp mixture should approximately make the right size for the grill
 9. cook
 10. eat
+
+### Modifiers
+#### By Tyson Bailey
+* Add 2 tsp ground anise
+* 1 tsp Brandy (or orange juice)
+* After done cooking roll in cinnamon/sugar mix
