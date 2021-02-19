@@ -9,6 +9,11 @@ Serious Eats
 1.5 cups water (somewhat luke warm)
 
 directions
+(2021 update)
+I dump everything in our bread machine, set to dough and let it go until it's basically done a good job mixing.
+I spray a bowl with olive oil and the plastic wrap and let irmt rise, it rose a lot more this way.
+
+Old directions:
 
 mix dry ingredients well
 
