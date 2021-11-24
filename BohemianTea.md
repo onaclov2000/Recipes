@@ -8,7 +8,7 @@ This is a delicious drink we make during the holidays.
 * 6 oz frozen concentrated orange juice
 ````
 Boil Water.
-Turn temp down, steep tea for 5 minutes or so.
+Turn temp down, steep tea for 5 minutes or so. (My mom's recipe suggests removing the tea bags, I just leave them in)
 Add sugar (disolve)
 Add lemonade, oj (I usually strain to make sure that there is no pulp, I'm not a fan of pulp)
 Add cinnamon and cloves
