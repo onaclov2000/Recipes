@@ -1,21 +1,31 @@
-2.5 cups flour
+# Flatbread
+## Recipe by Marilyn Bailey
+## Ingredients
+* 2.5 cups flour
+* 1.5 cups grahm or wheat flour
+* 3/4 cup shortening (crisco)
+* 2 cups boiling water
+* 1/4 tsp salt
 
-1.5 cups grahm flour
+## Directions
+Put dry ingredients in mixer
 
-3/4 cup shortening (crisco)
+Boil water.
 
-2 cups boiling water
+Melt the shortening in the boiling water
 
-1/4 tsp salt
+Pour into dry mix.
 
-mix well. roll like lefsa. fry on lefsa grill. bake in oven to brown
+Mix well
 
-325 degrees maybe oven
+Roll like lefsa
 
-475 lefse griddle
+Fry on lefsa grill at around 475 degrees
+
+bake in oven to brown 325 degrees for 12-13 minutes or until its starting to look hard. I flip them about halfways through.
 
 
-Notes from Amanda:
+### Notes from Amanda:
 * Bake at 325 for 12-13 minutes
 * Roll out with small amount of flour so it doesn't stick to everything
 * You can use the hot water from a water jug thing, works as well as boiling
