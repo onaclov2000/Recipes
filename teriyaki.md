@@ -10,9 +10,9 @@ https://www.youtube.com/watch?v=dBjQ-jMT_U8&feature=youtu.be
 * 1/8 Cup Sugar
 * 1/8 Cup Honey
 * 1/4 Cup Water
-* Small Ginger
-* 6 cloves Garlic to taste
-* 2 Tbsp Cornstarch
+* .5 Tbsp Ginger
+* 1 Tbsp Garlic to taste
+* 1/2 Tbsp Cornstarch
 
 I use pre-minced garlic and ginger, and need to measure
 
