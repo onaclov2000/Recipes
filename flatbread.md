@@ -8,17 +8,13 @@
 * 1/4 tsp salt
 
 ## Directions
-Put dry ingredients in mixer
+1. Put dry ingredients in mixer
+2. Boil water
+3. Melt the shortening in the boiling water
+4. Pour into dry mix.
+5. Mix well
 
-Boil water.
-
-Melt the shortening in the boiling water
-
-Pour into dry mix.
-
-Mix well
-
-Roll like lefsa
+Roll very thin (simliar to lefsa)
 
 Fry on lefsa grill at around 475 degrees
 
