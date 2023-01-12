@@ -27,3 +27,9 @@ Pour into pot, and simmer a "few" more minutes and you're done.
 
 ### Options
 I'll add Red Pepper Flakes Sometimes it's great.
+
+
+# Salmon
+https://natashaskitchen.com/teriyaki-salmon-recipe/
+
+Basically I just put sauce on it for 20 minutes in a bowl on the counter, and added a bit of sesame seeds on top when cooking in the oven
