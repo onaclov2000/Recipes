@@ -10,3 +10,5 @@ Cool beef over medium high heat with onion until browned. 5-7 minutes
 
 Drain fat. Return to heat
 
+Stir ketchup, vinegar, brown sugar, Worcestershire and mustard into beef mix. Simmer, stirring occasionally until thickened 15-20 mins
+
