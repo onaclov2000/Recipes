@@ -19,3 +19,28 @@
 10. Turtle Pretzels
 11. [Oreo Cookie Balls](http://www.snackworks.com/recipe/oreo-cookie-balls-126799.aspx)
 
+
+
+# 2023
+1. Krumkake
+2. Pretzel Rolls
+3. Chex Mix
+4. Almond Bark Pretzels
+5. Cookie Balls (do-si-do)
+6. Lefse
+7. Haystacks
+8. Biscochitos
+9. Chocolate Chip Cookies (Holiday chip, Hersheys Trees and stockings white creme chips)
+10. Gingerbread...? 
+
+
+# 2021
+1. Lefse
+2. Gingerbread Cookies
+3. Almond bark pretzels
+4. Pretzel rolos (Turtles)
+5. Minit cheesecakes
+6. Mini Buttermilk Pies
+7. Krumkake
+8. Cookie Balls
+9. Coconut Stacks
