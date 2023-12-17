@@ -5,7 +5,7 @@ From: https://www.thekitchn.com/how-to-make-chocolate-chip-cookies-cooking-lesso
 
 * 3/4 cup granulated sugar
 * 3/4 cup packed brown sugar
-* 1/2 cup (1 stick) salted butter, very soft
+* 1/2 cup (1 stick) salted butter, very soft (we actually use unsalted)
 * 2 large eggs
 * 1 teaspoon vanilla extract
 * 1 teaspoon table salt
