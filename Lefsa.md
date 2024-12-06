@@ -17,11 +17,11 @@ Mix together, roll out, and grill and eat
 ## Lefsa 2 ##
 #### Step 1 Ingredients ####
 3/4 Cup Lard  
-3 Tbsp Butter  
+3 Tbsp Butter (or margarine)
 5 Cups Water  
 4.5 Tsp Salt  
 5 Tsp Sugar  
-#### Step 2 Ingredients ####
+When boiling
 1 Can Carnation Evaporated Milk
 #### Step 3 Ingredients ####
 5 cups Potato Flakes  
@@ -140,3 +140,76 @@ pinch of baking powder
 cool then add 1.5 cups flour
 
 10 lbs of potatos makes approx 16 cups mashed potatoes
+
+## Lefse 10 ##
+Source: Recipe Card sent to me by my mom.
+Mom
+5 cups riced white potatoes, peel, boil, then rice, and add following ingredients and mix well
+1/2 cup crisco
+1 tsp sugar
+2 tsp salt
+mix then cool to room temp
+then mix in 1.5 cups flour
+roll, fry and eat!
+
+## Lefse 11 ##
+Source: Recipe Card sent to me by my mom.
+Bring to boil 6 cups water and 2 sticks margarine
+1/4 cup sugar 2 tbsp salt
+add 2 cups 2% milk and bring to another boil
+Add 8 cups potato flakes
+Mix altogether and let cool in covered bowl
+Add 2 cups flour and mix and roll into balls, keep in frige and take out a few at a time and roll
+Makes about 25 rolls.
+
+## Lefse 12 ##
+Source: Recipe Card sent to me by my mom.
+Sue Hamilton
+3 cups hungry jack instant potatoes
+1 cup dry powdered milk
+1 tbsp sugar
+3 cups boiling water
+1.66 tsp salt
+1 stick butter
+add 1.5 cup flour when cooled, mix
+Mix drying in separate container boil water and melt the butter, mix them together using a pastry blender or wooden spoon
+put mixture in frige to cool
+
+
+## Lefse 13 ##
+Source: Recipe Card sent to me by my mom.
+6 cups water
+1 cup butter
+1/4 cup sugar
+1.5 tsp salt
+Boil and remove from heat add 2 cups whipping cream
+
+add 15.3 box hungry jack potato flakes cool in frig or overnight
+add 4 cups flour when read to roll
+
+## Lefse 14 ## 
+Source: Recipe Card sent to me by my mom.
+(Dads handwriting)
+Boil together
+6 cups water
+1 cup butter
+1/4 cup sugar
+1.5 tsp salt
+Add: 2 cups cream
+Add: 8 cups hungry jack potato flakes
+
+Could make night before
+cool -- when ready to roll, add 4 cups flour
+
+Be sure dough is cool.
+Add flour too soon and dough will be sticky.
+
+## Lefse 15 ## 
+Source: Recipe Card sent to me by my mom.
+3 cups ground potatoes
+5 tbsp melted butter
+2 tbsp sweet cream
+2 tsp sugar
+1 tsp salt
+1 cup flour (might vary some)
+
