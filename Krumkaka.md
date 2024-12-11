@@ -1,4 +1,5 @@
 ## Krumkaka ##
+Makes at least 24
 #### By Marilyn Bailey ####
 * 3 Eggs  
 * 1/2 Cup Sugar  
@@ -23,3 +24,5 @@
 * Add 2 tsp ground anise
 * 1 tsp Brandy (or orange juice)
 * After done cooking roll in cinnamon/sugar mix
+
+
