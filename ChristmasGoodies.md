@@ -20,6 +20,13 @@
 11. [Oreo Cookie Balls](http://www.snackworks.com/recipe/oreo-cookie-balls-126799.aspx)
 
 
+# 2024
+1. Krumkake
+2. Flatbread
+3. Confetti Cake Balls
+4. Candycane almond bark (kinda like this, but not exactly, can't find the page....sigh: https://www.crazyforcrust.com/easy-peppermint-bark-recipe/)
+
+
 
 # 2023
 1. Krumkake
