@@ -1,0 +1,1 @@
+0.08teaspoonsalt0.08teaspoonpepper0.33Tablespoonsolive oil0.50poundbeef roast, excess fat trimmed0.83teaspoonsgarlic, minced2.67ouncespepperoncinis, undrained2.00largecrusty rolls (for sandwiches)2.00slicesprovolone cheese (for sandwiches)0to tastemayonnaise (for sandwiches)
