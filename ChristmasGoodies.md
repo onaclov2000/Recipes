@@ -24,7 +24,7 @@
 1. Krumkake
 2. Flatbread
 3. Confetti Cake Balls
-4. Candycane almond bark (kinda like this, but not exactly, can't find the page....sigh: https://www.crazyforcrust.com/easy-peppermint-bark-recipe/)
+4. Candycane almond bark (https://www.tasteofhome.com/recipes/white-chocolate-peppermint-crunch/)
 
 
 
