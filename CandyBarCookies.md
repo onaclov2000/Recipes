@@ -34,7 +34,7 @@
 2. Roll out the chilled dough on a floured surface.
 3. Use a small glass to cut out cookies.
    - *Note from Tyson: You can also try rolling it out and baking a whole sheet of cookies.*
-4. Place cookies on a baking sheet and bake for 10 to 13 minutes, or until golden.
+4. Place cookies on a baking sheet and bake for 10 to 13 minutes, or until golden. (As a big sheet I probably baked for 20 minutes....need to insert a more accurate time here)
 
 ### Topping:
 1. In a saucepan, heat caramels, whipped cream, butter, and powdered sugar over low heat. Stir until smooth.
