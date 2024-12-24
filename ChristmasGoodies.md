@@ -21,10 +21,31 @@
 
 
 # 2024
+## Christmas Eve
+Breakfast: 
+* https://www.allrecipes.com/recipe/24474/easy-bacon-and-cheese-quiche/
+* Pancakes
+Dinner:
+* Lasagna
+
+
+## Christmas Day
+* Beef Pepperochini sandwiches
+  
+## Treats
 1. Krumkake
 2. Flatbread
 3. Confetti Cake Balls
 4. Candycane almond bark (https://www.tasteofhome.com/recipes/white-chocolate-peppermint-crunch/)
+5. Cookie bars
+6. Almond bark pretzels
+7. Lefse
+8. (Rommegrot?)
+9. Pretzel rolos
+10. Peanut butter cookie balls
+11. Oreo Cookie Balls
+12. Bisochitos
+13. Chocolate chip Cookies
 
 
 
