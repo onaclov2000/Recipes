@@ -24,7 +24,7 @@
 ## Christmas Eve
 Breakfast: 
 * https://www.allrecipes.com/recipe/24474/easy-bacon-and-cheese-quiche/
-* Pancakes
+* Pancakes https://github.com/onaclov2000/Recipes/blob/master/pancakes.md
 Dinner:
 * Lasagna
 
