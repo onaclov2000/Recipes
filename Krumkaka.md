@@ -17,7 +17,8 @@ Makes at least 24
 7. Turn iron on medium heat
 8. 1 tsp mixture should approximately make the right size for the grill
 9. cook
-10. eat
+
+makes about 25-30 (depending on size)
 
 ### Modifiers
 #### By Tyson Bailey
