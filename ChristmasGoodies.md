@@ -21,10 +21,17 @@
 
 # 2025
 1. Bohemian Tea
-2. Krumkake
+2. Krumkake (four batches at least?)
 3. Biscochitos
 4. Almond Bark candycane
 5. [Rommegrot](https://github.com/onaclov2000/Recipes/blob/master/ROMMEGROT.md)
+6. turtle pretzels
+7. almond bark pretzels
+8. lefse
+9. yule log
+10. saltine toffee cracker
+11. wreaths
+12. 
 
 
 
