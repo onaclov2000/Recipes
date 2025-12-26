@@ -31,7 +31,11 @@
 9. yule log
 10. saltine toffee cracker
 11. wreaths
-12. 
+12. christmas lasagna
+13. chocolate chip cookies
+14. gingerbread cookies
+15. chex mix
+16. green Chile cornbread
 
 
 
